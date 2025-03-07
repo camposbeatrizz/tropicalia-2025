@@ -1,1 +1,1 @@
-# tropicalia-2025
+# tropicalia
